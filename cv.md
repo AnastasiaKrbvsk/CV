@@ -9,4 +9,4 @@
 1. **Education**: 
     * BSUIR, 2 stage.
     * Rolling Scopes School
-1. **English**: For three years I went to English courses. Watch films and serials on English.
+1. **English**: I have been learning English at courses about three years. Watch films and serials on English.
